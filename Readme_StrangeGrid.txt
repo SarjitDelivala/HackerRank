@@ -1,0 +1,1 @@
+For program definition goto this link : https://www.dropbox.com/s/fyw717awkrl836c/strange-grid-English.pdf?dl=0

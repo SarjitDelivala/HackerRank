@@ -1,0 +1,1 @@
+For program definition goto this link : https://www.dropbox.com/s/gnbhcoyxgynfr1a/funny-string-English.pdf?dl=0
